@@ -1,2 +1,0 @@
-# Yazmayıp da beslese miydik
-
